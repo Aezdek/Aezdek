@@ -5,7 +5,7 @@
 
 ❤ Owner of Vysor
 
-Vysor Invite : https://discord.gg/bloxburgscript
+Vysor Invite : https://discord.gg/vysorbloxburg
 
 Discord : Aezdek
 
